@@ -37,6 +37,13 @@ BlackHat Crypter By 0xZero
 Runtime Check Result : https://kleenscan.com/runtime/scan_result/0be9aff8198f919a26763186948ed2488c8a72f392414c5194e701138b2c0cf7
 
 
+
+Buy From Shop : https://0xzero.sellix.io/product/641c7d31ee204
+
+My Shop : https://0xzero.mysellix.io/
+
+
+
 Telegram : https://t.me/spoof0x
 
 joinGroup : https://t.me/xZeroOfficial
